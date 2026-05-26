@@ -1,5 +1,5 @@
 # Hi there I'm Mikolaj
-**CS student at Gdansk University of Technology**
+**CS student at Gdansk University of Technology 2025 - Now**
 
 # Learning
 <p align="left">
